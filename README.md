@@ -2,7 +2,8 @@
 - 👀 I’m a Barista
 - 🌱 I’m a Interista
 - 💞️ I’m a Pythonista
-- 📫 How to reach me ...
+- 📫 How to reach me ... twitter>>>
+@Ashirazifard
 
 <!---
 twitter
